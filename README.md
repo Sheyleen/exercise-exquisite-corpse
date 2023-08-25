@@ -9,4 +9,4 @@ Suis-je le moins inspiré des quatres ? peut-être bien mais comment le savoir ?
 
 
 
-c'est juste drole et intéressant aussi.
+c'est juste drôle et intéressant aussi.
